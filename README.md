@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sakshi134
+- 😄 Pronouns: she/her
+- 🌱 I’m currently pursuing my B.E. degree in Information Technology @AEC,Chikhli.
